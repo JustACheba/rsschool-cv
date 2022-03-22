@@ -1,1 +1,1 @@
-# rsschool-cv
+https://JustACheba.github.io/rsschool-cv/
